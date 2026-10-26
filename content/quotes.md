@@ -67,6 +67,10 @@ weight: 1
 
 >" I dont know that nigger. But I know that he's a nigger, and that's all I need to know." - General Smithers
 
+> "Au moins y a un truc qui me rassure
+> C'est qu'avant qu'j'te rencotre, l'amour j'y croyais plus
+> Et avec toi j'y ai re-cru donc j'me dis qu'j'y recroirais encore
+> Meme si la j'y crois plus" - Khyan Khojandi
 ## Asmongold
 
 > "Why would you expect them to be accountable to reality?"
